@@ -7,4 +7,5 @@ Poniżej link do reszty cięższych książek i filmików(bo darmowy git ma ogra
 (tutaj niedługo pojawi się link, jeśli się to prześle wgl xD)
 
 Pozdrawiam
+
 Adrian Albrecht
